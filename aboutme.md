@@ -3,14 +3,34 @@ layout: page
 title: About me
 subtitle: Why you'd want to go on a date with me
 ---
+KOMUNITAS
+INDONESIA
+LAWAN
+LIBAS
+COVID 19
 
-My name is Inigo Montoya. I have the following qualities:
+### KILL COVID19
 
-- I rock a great mustache
-- I'm extremely loyal to my family
+Sebuah Komunitas yang Berbadan hukum dengan Anggota nya yang berkomitmen tinggi Berdedikasi untuk berjuang  melawan dan melibas Covid 19 sampai bersih di dalam Negara kita tercinta Republik Indonesia
 
-What else do you need?
+### VISI
 
-### My story
+Menggerakkan seluruh kekuatan dan Potensi Bangsa Indonesia untuk Melawan Melibas Virus Covid 19 sampai di temukannya nanti Obat dan serum Vaksin Covid 19
 
-To be honest, I'm having some trouble remembering right now, so why don't you just watch [my movie](https://en.wikipedia.org/wiki/The_Princess_Bride_%28film%29) and it will answer **all** your questions.
+### MISI
+
+Menyelamatkan seluruh anak Bangsa Indonesia untuk bebas dari Covid 19 demi Memperkuat Pertahanan kesatuan dan persatuan Negara Republik Indonesia dengan bebas Covid 19
+
+### MOTTO
+
+SATU HATI SATU JIWA SATU TUJUAN MELAWAN MELIBAS COVID 19
+
+Mari bergabung
+Meri berjuang
+Mari Menyatukan barisan
+
+bersama
+
+### KILL COVID19
+
+
