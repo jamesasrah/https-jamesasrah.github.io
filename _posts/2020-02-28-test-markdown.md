@@ -1,7 +1,7 @@
 ---
 layout: post
 title: VISI 
-subtitle: Each post also has a subtitle
+subtitle: Kill Covid is a great mission
 gh-repo: daattali/beautiful-jekyll
 gh-badge: [star, fork, follow]
 tags: [test]
